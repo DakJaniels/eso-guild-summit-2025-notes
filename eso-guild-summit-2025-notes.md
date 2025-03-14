@@ -1,6 +1,6 @@
 # ESO Guild Summit 2025 - Notes
 
-## Recorded by Hiyde on March 13, 2025
+## Transcribed by Hiyde on March 13, 2025
 
 > **Note from the recorder:** The text is a mix of direct quotes and real-time summaries. I've attempted to capture the essence of every question and answer. Enjoy!
 
