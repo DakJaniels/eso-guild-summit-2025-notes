@@ -2,7 +2,7 @@
 
 ## Transcribed by Hiyde on March 13, 2025
 
-> **Note from the recorder:** The text is a mix of direct quotes and real-time summaries. I've attempted to capture the essence of every question and answer. Enjoy!
+> **Note from the transcriber:** The text is a mix of direct quotes and real-time summaries. I've attempted to capture the essence of every question and answer. Enjoy!
 
 ## Table of Contents
 
